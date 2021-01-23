@@ -1,0 +1,1 @@
+Manchurian in the Indian lingo is a term for fried veggies in this spicy-umami sauce. You can also call the sauce as manchurian sauce. Manchurian and many other Indian Chinese recipes were an invention of the Chinese community living in Kolkata.
